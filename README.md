@@ -13,3 +13,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: She/her
 - ⚡ Fun fact: I am originally from Ohio
 
+
+Northeastern University 
+Khoury Collge of Computer College
+
